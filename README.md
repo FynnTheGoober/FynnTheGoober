@@ -8,7 +8,8 @@
 - 💞️ I’m looking to collaborate on 
      - Nothing, currently...
 - 📫 How to reach me 
-     - Discord - TMC#4345
+     - Discord - TMC4345
+     - E-Mail - tmc@tmc4345.xyz
 
 <!---
 what did you ✨ find ✨?
