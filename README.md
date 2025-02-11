@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TMC4345
+- 👋 Hi, I’m Fynn
 - 👀 I’m interested in 
      - Gaming and coding, aren't we all though! 
 - 🌱 I’m currently learning 
