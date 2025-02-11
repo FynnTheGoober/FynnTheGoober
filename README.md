@@ -8,7 +8,7 @@
 - 💞️ I’m looking to collaborate on 
      - Nothing, currently...
 - 📫 How to reach me 
-     - Discord - TMC4345
+     - Discord - FynnTheGoober
      - E-Mail - tmc@tmc4345.xyz
 
 <!---
