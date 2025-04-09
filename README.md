@@ -9,7 +9,7 @@
      - Nothing, currently...
 - 📫 How to reach me 
      - Discord - FynnTheGoober
-     - E-Mail - tmc@tmc4345.xyz
+     - E-Mail - fynn@tmc4345.xyz
 
 <!---
 what did you ✨ find ✨?
